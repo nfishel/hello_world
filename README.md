@@ -1,2 +1,3 @@
 # Hello, Royals!
-## Take Pride In Yourself, And In The Royals!
+## Take Pride In Yourself
+## & In The Royals!
